@@ -1,0 +1,5 @@
+html, body, div, h1, h2, h3, h4, h5, h6, article, aside, footer, header, hgroup, nav, section { margin: 0; padding: 0; vertical-align: baseline; }
+
+main {  display: block; }
+
+h1 { font-size: 68px; padding: 40px 0; }
