@@ -70,22 +70,22 @@ tags:
 
 ### Ingredients
 
-1 tablespoon oil
-8 pork or vegetarian sausages
-2 white onions, finely sliced
-150g frozen mushrooms, chopped
-2 celery sticks, finely chopped
-3 cloves of garlic, minced
-1 handful of frozen peas, chopped
-3/4 sprigs of fresh thyme
-600ml of gravy (I used onion gravy granules) my dish was quite small you can add more if you feel you need it
+- 1 tablespoon oil
+- 8 pork or vegetarian sausages
+- 2 white onions, finely sliced
+- 150g frozen mushrooms, chopped
+- 2 celery sticks, finely chopped
+- 3 cloves of garlic, minced
+- 1 handful of frozen peas, chopped
+- 3/4 sprigs of fresh thyme
+- 600ml of gravy (I used onion gravy granules) my dish was quite small you can add more if you feel you need it
 
 For the mash:
-2 large potatoes, cut into chunks
-150ml whole milk
-50g butter
-pinch of salt
-1 handful of grated mozzarella (or cheddar)
+- 2 large potatoes, cut into chunks
+- 150ml whole milk
+- 50g butter
+- pinch of salt
+- 1 handful of grated mozzarella (or cheddar)
 
 ### Method
 
