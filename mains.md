@@ -62,3 +62,39 @@ tags: Chicken, pie, quick, veg, leftovers
 2. Take the puff pastry, cut out four circles. Take two of those circle (these will be your top layers) and cut out a smaller circle inside, keep everything intact. Egg wash the bottom two circles, place a top circle on each bottom circle, egg wash the entire thing. Bake at 400°F/205°C for 20-25 minutes or until puffy and golden brown.
 
 3. Take the puff pastry shell, use a knife to remove the top, fill with the chicken pot pie filling, put the top back on. Enjoy!
+
+Sausage and Mash Pie
+---------------------
+
+tags: 
+
+### Ingredients
+
+1 tablespoon oil
+8 pork or vegetarian sausages
+2 white onions, finely sliced
+150g frozen mushrooms, chopped
+2 celery sticks, finely chopped
+3 cloves of garlic, minced
+1 handful of frozen peas, chopped
+3/4 sprigs of fresh thyme
+600ml of gravy (I used onion gravy granules) my dish was quite small you can add more if you feel you need it
+
+For the mash:
+2 large potatoes, cut into chunks
+150ml whole milk
+50g butter
+pinch of salt
+1 handful of grated mozzarella (or cheddar)
+
+### Method
+
+1. Preheat the oven to 180 degrees. Peel your potatoes and cut them into small chunks then add them to a pan of salted water and cook for 15 minutes.
+
+2. Heat up the oil in a large frying pan and gently cook the sausages on a medium heat for 12-15 minutes until they’re crispy. Transfer them to a plate then put the butter in the pan then tip in the onions, celery and garlic with the thyme leaves and fry for around ten minutes until really soft. Add in the mushrooms and peas and fry for another 5 minutes.
+   
+3. Make up the gravy and pour that into then pan then chop up the sausages into 1cm slices and add them into frying pan but keep 6 slices back for the topping. Simmer everything for a few minutes.
+   
+4. Drain the potatoes when fully cooked (potatoes should slip off a knife) Add in milk, a bit of cheese and butter with a pinch of salt and mash thoroughly.
+
+5. Add the sausages to a large pie dish then spoon the mash over the top. Use the back of a spoon to smooth the mash over the sausage mixture. Top with the grated cheese then place the 6 sausage slices on top. Place in the oven for 30 minutes. A few minutes before the end, remove the pie and sprinkle a few more thyme leaves over the top then place back in oven.
